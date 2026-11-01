@@ -1,0 +1,1 @@
+# sto_management_Naumov
